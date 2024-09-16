@@ -1,3 +1,3 @@
-Desenvolvedor Web
+🧺 Desenvolvedor Web
 
-E-Mail: phfernandes182627@outlook.com
+📬 **E-Mail:** phfernandes182627@outlook.com
